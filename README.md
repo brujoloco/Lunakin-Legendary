@@ -49,3 +49,11 @@ Straight from my screen in Qeynos — feast your eyes, traveler! 👀✨
 ![Lunakin Legendary in EverQuest Legends — screenshot 6](screenshots/EQ000007.jpg)
 
 ![Lunakin Legendary in EverQuest Legends — screenshot 7](screenshots/EQ000008.jpg)
+
+![Lunakin Legendary in EverQuest Legends — screenshot 8](screenshots/EQ000009.jpg)
+
+![Lunakin Legendary in EverQuest Legends — screenshot 9](screenshots/EQ000010.jpg)
+
+![Lunakin Legendary in EverQuest Legends — screenshot 10](screenshots/EQ000013.jpg)
+
+![Lunakin Legendary in EverQuest Legends — screenshot 11](screenshots/EQ000014.jpg)

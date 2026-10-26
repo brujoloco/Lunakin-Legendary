@@ -36,24 +36,22 @@ A **warm welcome and a big hug from the Qeynos server!** 🏰🤗🍀 May your b
 
 Straight from my screen in Qeynos — feast your eyes, traveler! 👀✨
 
-![Lunakin Legendary in EverQuest Legends — screenshot 1](screenshots/EQ000000.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 1](screenshots/EQ000004.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 2](screenshots/EQ000002.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 2](screenshots/EQ000006.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 3](screenshots/EQ000004.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 3](screenshots/EQ000007.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 4](screenshots/EQ000005.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 4](screenshots/EQ000008.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 5](screenshots/EQ000006.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 5](screenshots/EQ000000.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 6](screenshots/EQ000007.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 6](screenshots/EQ000005.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 7](screenshots/EQ000008.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 7](screenshots/EQ000009.jpg)
 
-![Lunakin Legendary in EverQuest Legends — screenshot 8](screenshots/EQ000009.jpg)
+![Lunakin Legendary in EverQuest Legends — screenshot 8](screenshots/EQ000014.jpg)
 
 ![Lunakin Legendary in EverQuest Legends — screenshot 9](screenshots/EQ000010.jpg)
 
 ![Lunakin Legendary in EverQuest Legends — screenshot 10](screenshots/EQ000013.jpg)
-
-![Lunakin Legendary in EverQuest Legends — screenshot 11](screenshots/EQ000014.jpg)
